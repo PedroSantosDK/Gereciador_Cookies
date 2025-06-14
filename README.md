@@ -1,0 +1,1 @@
+# Gereciador_Cookies
